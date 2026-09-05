@@ -44,4 +44,5 @@ Depending on your location, you may have rights regarding your personal informat
 
 If you have questions about this Privacy Policy, please contact us at:
 
-**Email:** your@email.com
+**Email:** bashirumar.shagunu@gmail.com
+**Contact* Umar Bashir
